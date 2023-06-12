@@ -7,7 +7,7 @@
 🔗**Sosyal Medya Adreslerim**
 > Instagram -> [@callmekivanc](https://www.instagram.com/callmekivanc/)
 > 
-> Discord -> [yoya#2268](https://discord.com/users/1020771056157462559)
+> Discord -> [kivance](https://discord.com/users/1020771056157462559)
 
 <br/>
 
