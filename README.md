@@ -1,6 +1,6 @@
 
 
-❓**Kimim benI?**
+❓**Kimim ben?**
 > Merhaba ben Kıvanç Eren, 16 yaşında bir lise öğrencisiyim. React & Next.js ile ilgileniyorum profilimde küçük büyük birçok proje mevcut.<br/>
 <br/>
 
